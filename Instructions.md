@@ -1,0 +1,9 @@
+1. Bring Water to a boil. 
+2. Melt 2 tablespoons of butter in a deep, large ovenproof skillet over medium-high heat.
+3. Add the onions, thyme sprigs, and bay leaf and season with salt and pepper.
+4. Cover with a lid, baking sheet or foil and cook, stirring once or twice, until the onions are softened, 3 to 5 minutes. 
+5. Uncover and cook on medium-high, stirring occasionally, until deep golden brown, 20 to 25 minutes. If the onions look dry, add a few tablespoons of water at a time to prevent them from burning, scraping up any browned bits that are stuck to the bottom of the skillet. (You will need to do this several times.)
+6. While the onions are cooking, heat the oven to 450 degrees. Cook the pasta in the boiling water until 2 minutes shy of al dente; drain and set aside. Rub one side of each baguette slice with garlic.
+7. When the onions are a deep golden brown, discard the thyme sprigs and bay leaf and deglaze the skillet with the vinegar until evaporated, scraping up browned bits as you go, about 30 seconds. Add the remaining 2 tablespoons butter. When melted, add the flour and cook, stirring, until the flour begins to stick to the bottom of the pan and has turned a light golden brown, about 3 inutes. Slowly whisk in the milk aand season with salt and pepper. Bring to a simmer, whisking often. 
+8. Reserve 1 cup of Gruyere. Carefully add the remaining Gruyere and all the Cheddar to the caramelized onion mixture and carefully stir until melted. If your pan is big enough, add the cooked pasta and stir to combine, or combine the sauce and pasta in the prepared dish. 
+9. Spread the pasta mixture in an even layer in the prepared dish, then top with the baguette slices, garlic side-up. Sprinkle the toasts with the reserved 1 cup of Gruyere and season with pepper. Place the skillet or dish on a sheet pan and bake until bubbly aand brown in spots, 10 to 15 minutes. Let cool slightly, then garnish with fresh thyme leaves.
